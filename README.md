@@ -1,1 +1,1 @@
-# singolo
+https://egatonikitin.github.io/singolo/
